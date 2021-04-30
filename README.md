@@ -1,2 +1,2 @@
-♚•Hai Semua 👋,Saya•♚
+Hai Semua 👋,Saya
 King-Senuk
