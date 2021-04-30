@@ -1,1 +1,1 @@
-https://r67.cooltext.com/
+king senuk
